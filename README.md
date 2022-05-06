@@ -4,7 +4,7 @@
 - 🤩 You can check my progress thanks to the repositories with my pet-projects;
 - 💞️ I'm looking for cooperation opportunities with a company where I can continue to improve my skills even faster;
 - 📫 How to reach me:
--  in my email address: serkeydies@gmail.com 
+-  Email: serkeydies@gmail.com 
 -  Telegram: https://t.me/keydies
 -  Instagram: https://www.instagram.com/__schastlivtsev__/
 
